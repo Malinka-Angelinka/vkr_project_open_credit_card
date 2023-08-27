@@ -1,0 +1,1 @@
+# vkr_project_open_credit_card
